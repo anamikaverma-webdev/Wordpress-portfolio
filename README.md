@@ -1,2 +1,9 @@
-# Wordpress-portfolio
-Listing here are all of my worpress website.
+✅ https://equaexchange.com   
+✅ https://greylockgreen.com  
+✅ https://studiodmerch.com 
+✅ https://axfraceparts.com 
+✅ https://www.becomeholonic.com 
+✅ https://greensidefinance.com.au
+✅ https://qoegroup.com
+✅ https://hkiproservices.com
+✅ http://contractormarketingtools.com
